@@ -186,6 +186,3 @@
 ----
 
 作者：**霍丙乾 bennyhuo（[B站](https://space.bilibili.com/28615855)|[YouTube](https://www.youtube.com/@bennyhuo)）**
-来源：知识星球：**bennyhuo**
-
-![](assets/zsxq.png)
